@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @snehsseq (Sneh)
+- 👀 I’m interested in collabration with new people - Full stack developers, Test automation engineers, Devops, QA enginners. 
+- 🌱 I’m HR by profession.
+- 📫 You can reach out to me at snehera@yahoo.com
+- LinkedIn 🔗 https://www.linkedin.com/in/sequeirasn/
+- 🌈 Stay happpy
